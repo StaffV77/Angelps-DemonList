@@ -1,3 +1,7 @@
 # Angelps-DemonList
 
-https://camo.githubusercontent.com/55af539f334e283be9d86abd9d4e52c2b9f082c94991ddc70f5f105bc5e8e741/68747470733a2f2f692e696d6775722e636f6d2f6e535a577669582e6a706567
+Information
+
+We are a demon list of a private server called angelps we are not looking to compete with anyone because we are not an official GD demon list we are only from a private server.
+
+© All rights reserved
